@@ -3,9 +3,9 @@
     / ノ)　　 ∧　　）　ヽ　
    / ｜　　(´・ω・`)ノ⌒(ゝ._,ノ  
    /　ﾉ⌒7⌒ヽーく　 ＼　／
-  丶＿ ノ　　 ノ､　　|　/
-　　 `ヽ `ー-'_人`ーﾉ 　IDK WHAT
-　　　 丶 ￣ _人'彡ﾉ       THE FAK
-　　　　ﾉ　　r'十彡 ⌒）     AM I DOING
+  丶＿ ノ　　 ノ､　　|　/          im newbie ._.
+　　 `ヽ `ー-'_人`ーﾉ 　TRUST ME
+　　　 丶 ￣ _人'彡ﾉ       ALL THIS ARE ONLY
+　　　　ﾉ　　r'十彡 ⌒）     LEARNING PURPOSE !!!
 　　 ／｀ヽ_/ﾉ⌒＼＿ﾉ
 ```
